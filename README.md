@@ -1,0 +1,2 @@
+# Jushacoin
+Jushacoin
